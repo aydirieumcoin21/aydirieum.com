@@ -1,1 +1,0 @@
-# aydirieum.com
